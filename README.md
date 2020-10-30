@@ -1,3 +1,1 @@
-# Darpa–Cedar
-
-## An anthology of lost causes
+![Screenshot of Darpa–Cedar](https://i.imgur.com/Mepyz2P.jpg)
